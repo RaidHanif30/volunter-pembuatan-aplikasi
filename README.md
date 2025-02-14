@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Raid Hanif, [oo.or.id](https://oo.or.id).
+* Raid Hanif, [Linkedin](https://www.linkedin.com/in/raid-hanif-0aa893350/).
